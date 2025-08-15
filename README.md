@@ -1,9 +1,196 @@
 # Scotland Sing Along
 
+[Somewhere Only We Know](#somewhere-only-we-know)</br>
+[The River](#the-river)</br>
+[Lady Madonna](#lady-madonna)</br>
+[Let it Be](#let-it-be)</br>
 [Skyfall](#skyfall)</br>
 [Pink Pony Club](#pink-pony-club)</br>
 [Don't Look Back in Anger](#dont-look-back-in-anger)</br>
-[Leaving on a Jet Plane](#leaving-on-a-jet-plane)
+[Leaving on a Jet Plane](#leaving-on-a-jet-plane)</br>
+
+## Somewhere Only We Know</br>
+I walked across an empty land</br>
+I knew the pathway like the back of my hand</br>
+I felt the earth beneath my feet</br>
+Sat by the river and it made me complete</br>
+
+Oh, simple thing, where have you gone?</br>
+I'm getting old and I need something to rely on</br>
+So tell me when you're gonna let me in</br>
+I'm getting tired and I need somewhere to begin</br>
+
+I came across a fallen tree</br>
+I felt the branches of it looking at me</br>
+Is this the place we used to love?</br>
+Is this the place that I've been dreaming of?</br>
+
+Oh, simple thing, where have you gone?</br>
+I'm getting old and I need something to rely on</br>
+So tell me when you're gonna let me in</br>
+I'm getting tired and I need somewhere to begin</br>
+
+**Chorus**</br>
+And if you have a minute, why don't we go</br>
+Talk about it somewhere only we know?</br>
+This could be the end of everything</br>
+So why don't we go somewhere only we know?</br>
+Somewhere only we know</br>
+
+Oh, simple thing, where have you gone?</br>
+I'm getting old and I need something to rely on</br>
+So tell me when you're gonna let me in</br>
+I'm getting tired and I need somewhere to begin</br>
+
+**Chorus**</br>
+And if you have a minute, why don't we go</br>
+Talk about it somewhere only we know?</br>
+This could be the end of everything</br>
+So why don't we go? So why don't we go?</br>
+
+Ooh-ooh-ooh</br>
+Oh-oh-oh</br>
+
+This could be the end of everything</br>
+So why don't we go somewhere only we know?</br>
+Somewhere only we know</br>
+Somewhere only we know</br>
+
+## The River</br>
+You know a dream is like a river</br>
+Ever changin' as it flows</br>
+And a dreamer's just a vessel</br>
+That must follow where it goes</br>
+Trying to learn from what's behind you</br>
+And never knowing what's in store</br>
+Makes each day a constant battle</br>
+Just to stay between the shores</br>
+
+**Chorus**</br>
+And I will sail my vessel</br>
+'Til the river runs dry</br>
+Like a bird upon the wind</br>
+These waters are my sky</br>
+I'll never reach my destination</br>
+If I never try</br>
+So, I will sail my vessel</br>
+'Til the river runs dry</br>
+
+Too many times we stand aside</br>
+And let the waters slip away</br>
+Till what we put off till tomorrow</br>
+Has now become today</br>
+So don't you sit upon the shoreline</br>
+And say you're satisfied</br>
+Choose to chance the rapids</br>
+And dare to dance the tide</br>
+
+**Chorus**</br>
+Yes, I will sail my vessel</br>
+'Til the river runs dry</br>
+Like a bird upon the wind</br>
+These waters are my sky</br>
+I'll never reach my destination</br>
+If I never try</br>
+So, I will sail my vessel</br>
+'Til the river runs dry</br>
+
+**Bridge**</br>
+And there's bound to be rough waters</br>
+And I know I'll take some falls</br>
+But with the good Lord as my captain</br>
+I can make it through them all</br>
+
+**Chorus**</br>
+Yes, I will sail my vessel</br>
+'Til the river runs dry</br>
+Like a bird upon the wind</br>
+These waters are my sky</br>
+I'll never reach my destination</br>
+If I never try</br>
+So, I will sail my vessel</br>
+'Til the river runs dry</br>
+
+Yes, I will sail my vessel</br>
+'Til the river runs dry</br>
+'Til the river runs dry</br>
+
+## Lady Madonna</br>
+Lady Madonna, children at your feet,</br>
+Wonder how you manage to make ends meet.</br>
+Who finds the money when you pay the rent?</br>
+Did you think that money was heaven sent?</br>
+
+Friday night arrives without a suitcase.</br>
+Sunday morning creeping like a nun.</br>
+Monday's child has learned to tie his bootlace.</br>
+See how they run.</br>
+
+Lady Madonna, baby at your breast,</br>
+Wonder how you manage to feed the rest.</br>
+
+See how they run.</br>
+
+Lady Madonna, lying on the bed,</br>
+Listen to the music playing in your head.</br>
+
+Tuesday afternoon is never ending,</br>
+Wednesday morning papers didn't come,</br>
+Thursday night your stockings needed mending,</br>
+See how they run.</br>
+
+Lady Madonna, children at your feet,</br>
+Wonder how you manage to make ends meet.</br>
+
+## Let it Be</br>
+When I find myself in times of trouble</br>
+Mother Mary comes to me</br>
+Speaking words of wisdom</br>
+Let it be.</br>
+
+And in my hour of darkness</br>
+She is standing right in front of me</br>
+Speaking words of wisdom</br>
+Let it be.</br>
+
+**Chorus**</br>
+Let it be, let it be, let it be, let it be</br>
+Whisper words of wisdom</br>
+Let it be.</br>
+
+And when the broken-hearted people</br>
+Living in the world agree</br>
+There will be an answer</br>
+Let it be.</br>
+
+For though they may be parted there is</br>
+Still a chance that they will see</br>
+There will be an answer</br>
+Let it be.</br>
+
+**Chorus**</br>
+Let it be, let it be, let it be, let it be</br>
+There will be an answer</br>
+Let it be.</br>
+
+And when the night is cloudy</br>
+There is still a light that shines on me</br>
+Shine until tomorrow</br>
+Let it be.</br>
+
+I wake up to the sound of music</br>
+Mother Mary comes to me</br>
+Speaking words of wisdom</br>
+Let it be.</br>
+
+**Chorus**</br>
+Let it be, let it be, let it be, let it be</br>
+There will be an answer</br>
+Let it be.</br>
+
+Let it be, let it be, let it be, let it be</br>
+Whisper words of wisdom</br>
+Let it be...</br>
 
 ## Skyfall</br>
 This is the end</br>
